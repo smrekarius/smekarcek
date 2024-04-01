@@ -1,0 +1,2 @@
+# smekarcek
+prvi poskus
